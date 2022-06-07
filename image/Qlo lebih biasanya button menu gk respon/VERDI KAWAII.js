@@ -1,0 +1,6 @@
+/*
+Support VERDIKAWAII DAN ZEEONEOFC
+
+
+Yang jual sc ini anak haram
+*/
